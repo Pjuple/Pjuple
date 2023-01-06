@@ -1,69 +1,25 @@
-ok so hi hi hii
+you know what?
+forget it 
+im not doing that
 
-imagine this <br>
-a flying pen rolls under your door and you [platonically] explode  <br>
-congratulations!
+and you
 
-thank you! byeee! cyaa! later! toodles! goodbye farewell cheerio cheersadieuadiossayonara
+you
 
-unless
-
-you remain here
-
-for about 37 seconds
-
-approximately
+you didnt do anything dont worry
 
 but
 
-remember that
+you are reading my commits
 
-i lied
+how curious
 
-you will remain here for an estimated time of atleast longer than 2 seconds
+and what are you expecting from this?
 
-which isnt much but its weird that you are still here
+im not asking for an answer
 
-like wth
+im asking you to contemplate
 
-who are you
+are you by chance interested in what i have to say?
 
-i might know you but i dont know that im talking to you
-
-whats wrong with me
-
-why am i even writing this
-
-this markdown might even just get updated to something stupid again
-
-and it will be lost in my commits
-
-but
-
-i dont want to
-
-i dont want to keep losing markdowns in my commits
-
-it happened already
-
-and it will happen again
-
-after i finish this
-
-this monstrosity
-
-my previous markdown
-
-will also vanish
-
-and so will this one aswell
-
-but looking back
-
-at my previous one
-
-its actually very stupid haha
-
-like "ok" like what 
-
-im not original
+well
