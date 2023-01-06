@@ -1,25 +1,19 @@
-you know what?
-forget it 
-im not doing that
+i guess
 
-and you
+you can get more out of this
 
-you
+but you have to do me a favor
 
-you didnt do anything dont worry
+i would like you to do whatever you feel like doing now
 
-but
+take care of yourself
 
-you are reading my commits
+dont read my commits
 
-how curious
+i want you to be happy
 
-and what are you expecting from this?
-
-im not asking for an answer
-
-im asking you to contemplate
-
-are you by chance interested in what i have to say?
+and if reading my commits makes you happy
 
 well
+
+i guess i can give you that
